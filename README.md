@@ -2,7 +2,7 @@
 - 👀 I’m interested in math
 - 🌱 I’m currently learning english
 - 💞️ I’m looking for a partner to make conversation with.
-- 📫 my telegram usernami is Islomjon_me
+- 📫 my telegram username is Islomjon_me
 - 😄 Pronouns: i am really interesting man
 - ⚡ Fun fact: i am 18 years old
 
